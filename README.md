@@ -1,0 +1,1 @@
+# easy2forget.github.io-termsofservice
